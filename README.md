@@ -1,0 +1,2 @@
+- 👋 Siema jestem Kebsyy
+- 👀 Interesuje się programowaniem
